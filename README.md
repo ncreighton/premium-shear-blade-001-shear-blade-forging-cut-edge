@@ -1,0 +1,2 @@
+# premium-shear-blade-001-shear-blade-forging-cut-edge
+Tired of scattered notes, lost inventory counts, and forgotten custom orders that slow down your shear blade forging and cut edge craft business?  The Shear Blade Forging &amp; Cut Edge Craft Hub centralizes your entire forge-to-finish workflow in one Notion workspace, eliminating chaos and doubling your output. It's the only template built specificall
